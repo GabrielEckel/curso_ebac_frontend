@@ -1,0 +1,1 @@
+dedicada ao exercicio
